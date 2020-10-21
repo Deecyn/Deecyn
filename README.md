@@ -1,4 +1,4 @@
-Hi, this is Deecyn. 👋
+**Hi, this is Deecyn.** 👋👏👏
 
 📱💻🖥😜🤪
 
